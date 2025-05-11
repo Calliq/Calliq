@@ -1,4 +1,4 @@
-- 👋 Hi, my name is Calli :)
+- 👋 Hi, my name is Calli :) i'm brazillian and 19yo
 - 👀 I’m interested in games, books, tv shows, travelling etc
 - 🌱 I’m currently learning phyton
 - 📫 How to reach me: @cll.ag on instagram or @nocedart on twitter/X
